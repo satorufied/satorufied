@@ -4,4 +4,4 @@
 
 
 
-[prns.cc](https://pronouns.cc/@satorufied)
+[prns.cc](https://pronouns.cc/@satorufied) [rentry](https://rentry.co/qikgwop8)

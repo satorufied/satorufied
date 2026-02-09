@@ -2,4 +2,4 @@
 
 
 
-[prns.cc](https://pronouns.cc/@softberrie)
+[prns.cc](https://pronouns.cc/@satorufied)
